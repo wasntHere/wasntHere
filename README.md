@@ -1,0 +1,2 @@
+- Hi, I'm @wasntHere
+- a Roblox Scripter/Animator
